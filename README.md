@@ -1,0 +1,2 @@
+# qwaxremedia
+KİŞİSEL SİTE SCRİPTİ 
